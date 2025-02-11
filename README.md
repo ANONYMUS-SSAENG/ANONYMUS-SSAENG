@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ANONYMUS-SSAENG
 - 👀 I’m interested in Most things to do with music 
 - 🌱 I’m currently learning DONT KNOW 
-- 💞️ I’m looking to collaborate on ... 
+- 💞️ I’m looking to collaborate on ... anything 
 - 📫 How to reach me anonymus.ssaeng@gmail.com
 - - 😄 Pronouns: ANONYMUS
 - - ⚡ Fun fact: CODES
